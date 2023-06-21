@@ -5,7 +5,7 @@
 - 🤝 I'm open to collaborations and exciting projects in App Developments, AI, ML, ROS, IoT, and web development.
 - 🤔 I’m looking for help with advanced app development
 - 💬 Ask me about app development
-- 📫 How to reach me: pauldanial916@gmail.com , pauldanial916@outlook.com
+- 📫 How to reach me: pauldanial916@gmail.com , pauldanial916@outlook.com , [Linkedin](https://www.linkedin.com/in/paul-raj-184b7b202/)
 - 😄 Pronouns: He/Him
-- ⚡ Fun fact: Day dreamer😴 and Night worker💻
+- ⚡ Fun fact: 🌌 Imaginative daydreamer & 🦉 devoted night owl
 
